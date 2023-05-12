@@ -1,4 +1,4 @@
-# Earthwees: Uniting for a sustainable tomorrow.
+# Uniting for a sustainable tomorrow.
 
 Introducing Earthwees, the app that brings together a community of eco-conscious individuals committed to making a positive impact on our planet. 
 
